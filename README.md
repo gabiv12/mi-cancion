@@ -1,7 +1,7 @@
 # mi-cancion
 trabajo para informatica aplicada
-Lunes por la madrugada
-Yo cierro los ojos y veo tu cara
+Miercoles por la madrugada
+Yo abro los ojos y veo tu cara
 Que sonríe cómplice de amor
 
 Días en la carretera
