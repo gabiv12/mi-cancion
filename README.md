@@ -4,10 +4,10 @@ Lunes por la madrugada
 Yo cierro los ojos y veo tu cara
 Que sonríe cómplice de amor
 
-Días en la carretera
+Días en la calle de tierra
 Yo siento aquí dentro
 La emoción de haber
-Dejado lo mejor
+Dejado lo mejor ohhhhhh
 
 Yo no sé si es en vano este amor
 Aquí no hay luces de escena
