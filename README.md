@@ -17,7 +17,7 @@ Yo ya no comprendo nada
 Tantas caras dibujadas
 Como manchas en una pared
 
-Noches de melancolía
+dias de alegria
 Pateando en una ciudad vacía
 En la oscuridad te busco a vos
 
